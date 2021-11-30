@@ -6,8 +6,7 @@ Por breve de 11 de Junho de 1855 concedeu Pio IX trezentos dias de indulgencia a
 
 Vinde ó Espirito Santo, enchei os corações de vossos fieis e accendei nelles o fogo de vosso divino amor.
 
-V. Mandae o vosso Espirito e
-tudo será creado.
+V. Mandae o vosso Espirito e tudo será creado.
 
 R. E renovareis a face da terra.
 

@@ -1,7 +1,7 @@
 ## Os Sete Domingos de S. José
 
 ### Oração para Todos os Dias
-Gloriosissimo Patriarcha São José, Pai nutricio de Jesus e Esposo da santissima Virgem Maria; vosso poder no céo é sem limites e grande sobremaneira é vossa compaixão por nossas necessidades e miserias; pela ternura e bondade de vosso coração peço-vos humildemente, que tenhaes compaixão deste vosso devoto e que lhe assistaes em todas as suas necessidades e miserias, alcançando-lhe de Deus a graça especial que deseja conseguir nestes sete domingos.
+Gloriosissimo Patriarcha São José, Pai nutricio de Jesus e Esposo da Santissima Virgem Maria; vosso poder no céo é sem limites e grande sobremaneira é vossa compaixão por nossas necessidades e miserias; pela ternura e bondade de vosso coração peço-vos humildemente, que tenhaes compaixão deste vosso devoto e que lhe assistaes em todas as suas necessidades e miserias, alcançando-lhe de Deus a graça especial que deseja conseguir nestes sete domingos.
 
 Vossa vida, meu Pai e Protector, foi um tecido de alegrias e tristezas, que Nosso Senhor permittiu para que soubesseis por propria experiencia o que nós soffremos, e mais pontualmente e com maior efficacia, accudisseis ás nossas supplicas.
 Vinde, meu Pai, em meu auxilio na presente necessidade, confirmai mais uma vez o que dizem todos de Vós que ninguem se retira de vossa presença desairado em suas preces.
